@@ -1,1 +1,5 @@
 # UTS_KecerdasanBuatan_Kelompok3
+Nama Kelompok 3
+1. DIANA DAMAYANTI
+2. MUHAMAD FAHREZI
+3. TUBAGUS GANENDRA
